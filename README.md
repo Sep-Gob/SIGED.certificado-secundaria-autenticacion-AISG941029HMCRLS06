@@ -1,0 +1,2 @@
+# SIGED.certificado-secundaria-autenticacion-AISG941029HMCRLS06
+AISG941029HMCRLS06
